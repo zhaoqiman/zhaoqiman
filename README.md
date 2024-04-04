@@ -1,4 +1,4 @@
-- 😭 Former account banned by Github. Never do tricks on subscription service.
+- 😭 Former [account](https://github.com/hotcocoa357) banned by Github. Never do tricks on subscription service.
 - 👋 Hi, I’m @zhaoqiman,
 - 😍 A collge student ready to start master's degree.
 - 😊 Interested in game, semicon and whatever fun!
